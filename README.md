@@ -1,0 +1,8 @@
+- cyber security student from scotland. 
+  - free education is pretty sweet. 
+- linux nerd
+  - used gentoo for ages but moved to arch because fuck the upkeep and compiling, mainly booted on windows now... sorry richard stallman 
+- interest in both game hacking and anti-cheat development currently focused on fivem.
+  - i prefer anti-cheat related things in fivem but any other game im on the other side. 
+- shoegaze / slowcore enthusiast
+  - mbv is an abbreviation for "my bloody valentine" my second favourite band, first favourite being duster. 
